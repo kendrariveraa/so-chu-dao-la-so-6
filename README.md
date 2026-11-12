@@ -98,7 +98,7 @@ Số chủ đạo là số 6 luôn mong muốn xây dựng một mối quan hệ
 
 Tuy nhiên, vì quá quan tâm nên đôi khi số 6 chủ đạo có xu hướng kỳ vọng hoặc lo lắng quá mức. Nếu biết tôn trọng không gian riêng của đối phương, mối quan hệ sẽ trở nên hài hòa và bền vững hơn.
 
-> Có thể bạn sẽ quan tâm: **[thần số học số 6 hợp với số nào?](https://hackmd.io/@tracuuthansohocofficial/than-so-hoc-so-6-hop-voi-so-nao)**
+> Có thể bạn sẽ quan tâm: **[thần số học số 6 hợp với số nào?](https://hackmd.io/@kendrariveraa/than-so-hoc-so-6-hop-voi-so-nao)**
 
 **Làm thế nào để số chủ đạo là số 6 phát huy thế mạnh?**
 --------------------------------------------------------
